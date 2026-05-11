@@ -4,6 +4,8 @@
 
 Hey Adrian720-creator!
 
+Hols, soy Jose Maria.
+
 Mona here. I'm done preparing your exercise. Hope you enjoy! 💚
 
 Remember, it's self-paced so feel free to take a break! ☕️
