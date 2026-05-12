@@ -5,6 +5,7 @@
 Hey Adrian720-creator!
 
 Hols, soy Jose Maria.
+Estoy aprendiendo github
 
 Mona here. I'm done preparing your exercise. Hope you enjoy! 💚
 
