@@ -5,7 +5,8 @@
 Hey Adrian720-creator!
 
 Hols, soy Jose Maria.
-Estoy aprendiendo github
+Estoy aprendiendo github.
+Doy fe de ello, Adrian.
 
 Mona here. I'm done preparing your exercise. Hope you enjoy! 💚
 
